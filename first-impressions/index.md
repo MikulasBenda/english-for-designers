@@ -13,4 +13,8 @@ More about you.
 
 For how young I am i am surprised myself for how much i already did.
 
--As a part of my dads company a 
+- As a part of my dads company as a graphic designer, I worked on a lot of marketing projects, mainly presentations but also some visual arts too
+
+- For my student projects i worked on all sorts of interesting projects like an app design for a small gallery or new visial style for a ceffe Letka in near Letná park and the list goes on
+
+- I also dont want to brag or anything but im also proficient in real hand drawing and painting, im going to leave a link to my instagram so you can take a look if you want
