@@ -1,10 +1,38 @@
-Something more personal
-Im a right fit fot the "role"
-How i got here
-Who i am as a person and as a designer 
-How i gor here 
-Hhat are my goals 
-What is my brand 
-Be human be yourself 
-Show my personality 
-conect to my audience 
+My Story — A Designer Who Took the Scenic Route
+
+Once upon a time, I was just a kid drawing like every other kid. Nothing special. At least, that’s what everyone assumed — including me. It wasn’t until the last year of elementary school that I realized drawing could actually be… fun. Not just doodles, but something with meaning, something that could grow.
+
+When it came time to pick a high school, I was torn between two paths: cooking, my first love (and still a lifelong passion), or graphic design, a mysterious force I didn’t fully understand yet. I chose design — and landed in a school where “graphic design” meant dusty methods and outdated software. Still, I stuck with it. I kept drawing, painting, and leveling up my skills in my own way.
+
+Fast forward: I graduate, diploma in hand, confused as hell. I didn’t really “get” design yet, and I wasn’t sure what to do with myself. So I took a gap year. Call it a soul-searching break. And it hit me: I could either drift through life like a ghost… or wake up, pick myself up, and do something. I chose the second option. I enrolled in university and promised myself I’d stop waiting for life to happen.
+
+Then life hit again.
+
+After the worst heartbreak of my life, I went out with friends. The last thing I remember is drinks. The next thing? A hospital bed. Tubes. Blinding lights. A doctor telling me a vein in my brain burst. A full-on system shutdown — a dramatic plot twist I didn’t ask for.
+
+But here’s the best part:
+I lived. And I came back swinging.
+
+That moment became my second wake-up call. Since then, I’ve been creating, rebuilding, and reconnecting with the part of me that always felt the most alive — art. Graphic design isn’t just what I study; it’s how I understand the world, tell stories, and find purpose again.
+
+Who I Am Now:
+
+I’m honest. I’m self-aware. I’m stubborn in the best way.
+I’m the kind of person who learns things the hard way — but actually learns.
+As a designer, I thrive in thoughtful chaos. I love color, texture, and storytelling. I lean into emotion, but never forget function. I make work that’s human, like me — sometimes messy, sometimes bold, sometimes quiet, but always real.
+
+What I Want:
+
+Simple: I want to be happy. I want to create things that matter.
+Whether that’s as a designer, illustrator, youth mentor, or something I haven’t discovered yet — I just want to be worthwhile. I want to meet people who make me think. I want to grow. I want to be proud of who I am and what I make.
+
+And most importantly? I want to stay me.
+
+(Also, I once gave a presentation that got third place, and that’s basically my Oscars speech.)
+
+
+---
+
+One last thing
+If I had to summarize myself with a joke, it would be something like:
+“I took the scenic route to get here, made a few detours through heartbreak and hospital visits — but hey, at least my brand survived.”
