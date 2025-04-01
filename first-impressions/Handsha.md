@@ -1,4 +1,4 @@
-## Handshake
+# Handshake
 
 Hi, Miky here. Im an 24 year old unexpired but full of exitement young man living here in Czech republic, more specifically Prague. 
 
