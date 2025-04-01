@@ -1,4 +1,4 @@
-My Story — A Designer Who Took the Scenic Route
+# My Story — A Designer Who Took the Scenic Route
 
 Once upon a time, I was just a kid drawing like every other kid. Nothing special. At least, that’s what everyone assumed — including me. It wasn’t until the last year of elementary school that I realized drawing could actually be… fun. Not just doodles, but something with meaning, something that could grow.
 
@@ -21,6 +21,8 @@ I’m honest. I’m self-aware. I’m stubborn in the best way.
 I’m the kind of person who learns things the hard way — but actually learns.
 As a designer, I thrive in thoughtful chaos. I love color, texture, and storytelling. I lean into emotion, but never forget function. I make work that’s human, like me — sometimes messy, sometimes bold, sometimes quiet, but always real.
 
+(Also just to brag, last year I gave a presentation that got third place, and that’s basically my Oscars speech :DD.)
+
 What I Want:
 
 Simple: I want to be happy. I want to create things that matter.
@@ -28,11 +30,7 @@ Whether that’s as a designer, illustrator, youth mentor, or something I haven�
 
 And most importantly? I want to stay me.
 
-(Also, I once gave a presentation that got third place, and that’s basically my Oscars speech.)
 
 
 ---
 
-One last thing
-If I had to summarize myself with a joke, it would be something like:
-“I took the scenic route to get here, made a few detours through heartbreak and hospital visits — but hey, at least my brand survived.”
