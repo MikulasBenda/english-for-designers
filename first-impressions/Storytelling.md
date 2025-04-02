@@ -1,6 +1,9 @@
 # My Story — A Designer Who Took the Scenic Route
 
-Once upon a time, I was just a kid drawing like every other kid. Nothing special. At least, that’s what everyone assumed — including me. It wasn’t until the last year of elementary school that I realized drawing could actually be… fun. Not just doodles, but something with meaning, something that could grow.
+Hi.. my name si Mikuláš Benda, but you can call me Miky, I don't really go for formalities, at least when its not necessary, like talking to pope.. i would think you have to be formal around his holiness.. right? 
+I am here to tell you a little bit about myself so you know who you have the pleasure of listening to for the next 15 minutes, so without further ado, here we go.
+
+Once upon a time, I was just a little baby boy, exploring, laughing, crying and drawing like every other kid. Nothing out of the ordinary. At least, that’s what everyone assumed. It wasn’t until the last year of elementary school that I realized drawing could actually be… fun. Not just doodles, but something with meaning, something that could grow.
 
 When it came time to pick a high school, I was torn between two paths: cooking, my first love (and still a lifelong passion), or graphic design, a mysterious force I didn’t fully understand yet. I chose design — and landed in a school where “graphic design” meant dusty methods and outdated software. Still, I stuck with it. I kept drawing, painting, and leveling up my skills in my own way.
 
