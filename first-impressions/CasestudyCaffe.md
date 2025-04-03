@@ -2,6 +2,7 @@
 # Case Study: Visual Identity for Café Letka
 Second-Year Project — Graphic Design Bachelor
 
+
 ## Project Overview
 
 This project marked a personal turning point for me — my first assignment after rejoining my second year due to health issues. It was more than just a school task; it was a way to reintroduce myself as a designer. The challenge? Redesign the visual identity for Café Letka, a charming spot near Prague’s Letná Park, without confusing it with another nearby café that had already adopted the style from our pilot brief.
@@ -13,6 +14,13 @@ Our goal was to develop a fresh, authentic visual identity that matched Letka’
 ## Teamwork & Collaboration
 
 This was also a team project. I worked with a classmate named Karel. Let’s just say — we were very different. After some creative tension and strong opinions, we agreed to work separately while still exchanging feedback. It ended up being the best of both worlds: collaboration without conflict. And yes, we’re still friends.
+
+## Inspiration
+
+We took some photos and gathered images that could at the very least serve as inspiration
+
+![202019191-2910949029160766-2972533694849924066-n](https://github.com/user-attachments/assets/de7a00d7-de32-46f5-bca2-c7e3f3179110)
+
 
 ## Creative Process
 
