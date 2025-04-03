@@ -19,7 +19,9 @@ This was also a team project. I worked with a classmate named Karel. Let’s jus
 
 We took some photos and gathered images that could at the very least serve as inspiration
 
+
 ![202019191-2910949029160766-2972533694849924066-n](https://github.com/user-attachments/assets/de7a00d7-de32-46f5-bca2-c7e3f3179110)
+
 This is the outside of the caffe
 
 ![080bb150-02d5-4358-ae61-725d2cddf471](https://github.com/user-attachments/assets/35e9c1cc-6137-4ea9-9bbb-72013410113e)
@@ -27,6 +29,7 @@ This is the outside of the caffe
 ![0dd2257a-7265-4d6b-adf6-e25e9d9e7d62](https://github.com/user-attachments/assets/2f52e2e6-e1f4-4d23-b765-ac8c8e61ee16)
 ![712b6656-95bd-4e47-8392-fed72cc0dc30](https://github.com/user-attachments/assets/66c07d99-2f4c-4156-b9a1-bbc9c00c1412)
 
+Some examples of their visual style
 
 ## Creative Process
 
