@@ -20,9 +20,12 @@ This was also a team project. I worked with a classmate named Karel. Let’s jus
 We took some photos and gathered images that could at the very least serve as inspiration
 
 
-![202019191-2910949029160766-2972533694849924066-n](https://github.com/user-attachments/assets/de7a00d7-de32-46f5-bca2-c7e3f3179110)
+![202019191-2910949029160766-2972533694849924066-n](https://github.com/user-attachments/assets/de7a00d7-de32-46f5-bca2-c7e3f3179110) ![83a7eb9b-b197-4b49-803f-b8af0fceca27](https://github.com/user-attachments/assets/92db3035-8206-4b7b-9f7d-bf10ffb4dad3)
+
 
 This is the outside of the caffe
+
+
 
 ![080bb150-02d5-4358-ae61-725d2cddf471](https://github.com/user-attachments/assets/35e9c1cc-6137-4ea9-9bbb-72013410113e)
 ![1e4c7419-f1fc-4fd6-b9ed-2e7235ecf11d](https://github.com/user-attachments/assets/cbe5a47b-da8e-488c-b887-f9f6e2eabc01)
