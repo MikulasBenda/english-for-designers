@@ -25,6 +25,12 @@ We took some photos and gathered images that could at the very least serve as in
 
 This is the outside of the caffe
 
+![9b831638-6aea-4da2-80eb-0c034b6bec8a](https://github.com/user-attachments/assets/5f56c013-0b5a-42f5-abd5-b22fb14ec3f7)
+![fe046ba0-f90c-4f3f-bd33-2028877d4630](https://github.com/user-attachments/assets/02780be0-b7bf-477e-8866-3642558e5642)
+![864b2e8f-8623-46aa-8bfc-b3653cee4704](https://github.com/user-attachments/assets/80ca8cdc-45b1-4e45-a9e1-10a807ddd557)
+
+
+Interior.
 
 
 ![080bb150-02d5-4358-ae61-725d2cddf471](https://github.com/user-attachments/assets/35e9c1cc-6137-4ea9-9bbb-72013410113e)
@@ -32,7 +38,7 @@ This is the outside of the caffe
 ![0dd2257a-7265-4d6b-adf6-e25e9d9e7d62](https://github.com/user-attachments/assets/2f52e2e6-e1f4-4d23-b765-ac8c8e61ee16)
 ![712b6656-95bd-4e47-8392-fed72cc0dc30](https://github.com/user-attachments/assets/66c07d99-2f4c-4156-b9a1-bbc9c00c1412)
 
-Some examples of their visual style
+Some examples of their visual style.
 
 ## Creative Process
 
