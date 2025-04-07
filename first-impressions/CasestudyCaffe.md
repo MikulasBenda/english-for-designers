@@ -17,32 +17,37 @@ This was also a team project. I worked with a classmate named Karel. Let’s jus
 
 ## Inspiration
 
-We took some photos and gathered images that could at the very least serve as inspiration
+We took some photos and gathered images that could at the very least serve as collors to our palette of imagination.
 
 
 ![202019191-2910949029160766-2972533694849924066-n](https://github.com/user-attachments/assets/de7a00d7-de32-46f5-bca2-c7e3f3179110) ![83a7eb9b-b197-4b49-803f-b8af0fceca27](https://github.com/user-attachments/assets/92db3035-8206-4b7b-9f7d-bf10ffb4dad3)
 
 
-This is the outside of the caffe
+This is the outside of the caffe, in my opinion the location is perfect for a caffe, the perfect type too, local mainly neighbours sitting down for a nice cup of coffe to go or to sit down with a friend and chat about the ins and out of everyday life, beautiful.
 
 ![9b831638-6aea-4da2-80eb-0c034b6bec8a](https://github.com/user-attachments/assets/5f56c013-0b5a-42f5-abd5-b22fb14ec3f7)
 ![fe046ba0-f90c-4f3f-bd33-2028877d4630](https://github.com/user-attachments/assets/02780be0-b7bf-477e-8866-3642558e5642)
 ![864b2e8f-8623-46aa-8bfc-b3653cee4704](https://github.com/user-attachments/assets/80ca8cdc-45b1-4e45-a9e1-10a807ddd557)
 
-
-Interior.
-
+Some nice photos of the interior.
+Isn't it pretty :)
 
 ![080bb150-02d5-4358-ae61-725d2cddf471](https://github.com/user-attachments/assets/35e9c1cc-6137-4ea9-9bbb-72013410113e)
 ![1e4c7419-f1fc-4fd6-b9ed-2e7235ecf11d](https://github.com/user-attachments/assets/cbe5a47b-da8e-488c-b887-f9f6e2eabc01)
 ![0dd2257a-7265-4d6b-adf6-e25e9d9e7d62](https://github.com/user-attachments/assets/2f52e2e6-e1f4-4d23-b765-ac8c8e61ee16)
 ![712b6656-95bd-4e47-8392-fed72cc0dc30](https://github.com/user-attachments/assets/66c07d99-2f4c-4156-b9a1-bbc9c00c1412)
 
-Some examples of their visual style.
+We noticed their current visual style and how they use it, later it became a good inspiration for the final concept i was cooking with.
 
 ## Creative Process
 
-At first, I leaned into the obvious — the iconic Letná metronome, a symbol of independence — but it felt too forced. I shifted to something more fitting: a minimalist black-and-white outline of a coffee cup, softened and energized by colorful abstract shapes in the background. This contrast captured the vibe of Café Letka’s cozy interiors and modern marketing feel — simple, elegant, and playful.
+At first, I leaned into the obvious — the iconic Letná metronome, a symbol of independence — but it felt too "on the nose".
+Here are some examples. 
+
+
+
+I shifted to something more fitting: a minimalist black-and-white outline of a coffee cup, softened and energized by colorful abstract shapes in the background. This contrast captured the vibe of Café Letka’s cozy interiors and modern marketing feel — simple, elegant, and playful.
+
 
 ## Final Design & Outcome
 The final design features:
