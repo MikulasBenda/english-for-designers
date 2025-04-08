@@ -1,9 +1,9 @@
 
 # Case Study: Visual Identity for Café Letka
-Second-Year Project — Graphic Design Bachelor
+## Second-Year Project — restarting my brain 
 
 
-## Project Overview
+## Project Overview aka back to the land of the living 
 
 This **project** marked a personal turning point for me — my first assignment after rejoining my second year due to health issues. 
 It was more than just a school task; it was a way to reintroduce myself as a designer. The challenge? 
