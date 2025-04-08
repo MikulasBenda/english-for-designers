@@ -5,7 +5,9 @@ Second-Year Project — Graphic Design Bachelor
 
 ## Project Overview
 
-This project marked a personal turning point for me — my first assignment after rejoining my second year due to health issues. It was more than just a school task; it was a way to reintroduce myself as a designer. The challenge? Redesign the visual identity for Café Letka, a charming spot near Prague’s Letná Park, without confusing it with another nearby café that had already adopted the style from our pilot brief.
+This **project** marked a personal turning point for me — my first assignment after rejoining my second year due to health issues. 
+It was more than just a school task; it was a way to reintroduce myself as a designer. The challenge? 
+Redesign the visual identity for Café Letka, a charming spot near Prague’s Letná Park, without confusing it with another nearby café that had already adopted the style from our pilot brief.
 
 ## The Goal
 
@@ -20,7 +22,7 @@ This was also a team project. I worked with a classmate named Karel. Let’s jus
 We took some photos that could at the very least serve as collors to our palette of imagination.
 
 
-![202019191-2910949029160766-2972533694849924066-n](https://github.com/user-attachments/assets/de7a00d7-de32-46f5-bca2-c7e3f3179110) ![83a7eb9b-b197-4b49-803f-b8af0fceca27](https://github.com/user-attachments/assets/92db3035-8206-4b7b-9f7d-bf10ffb4dad3)
+![](![202019191-2910949029160766-2972533694849924066-n](https://github.com/user-attachments/assets/de7a00d7-de32-46f5-bca2-c7e3f3179110) ![83a7eb9b-b197-4b49-803f-b8af0fceca27](https://github.com/user-attachments/assets/92db3035-8206-4b7b-9f7d-bf10ffb4dad3)width=100)
 
 
 This is the outside of the caffe, in my opinion the location is great for a caffe, the perfect type too, local mainly neighbours getting a nice cup of coffe to go or to sit down with a friend or two and chat about the ins and out of everyday life, beautiful.
