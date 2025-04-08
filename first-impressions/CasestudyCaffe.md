@@ -37,7 +37,7 @@ I really like the mix of new and old, it fits the place and did i mention that i
 ![0dd2257a-7265-4d6b-adf6-e25e9d9e7d62](https://github.com/user-attachments/assets/2f52e2e6-e1f4-4d23-b765-ac8c8e61ee16)
 ![712b6656-95bd-4e47-8392-fed72cc0dc30](https://github.com/user-attachments/assets/66c07d99-2f4c-4156-b9a1-bbc9c00c1412)
 
-We noticed their current visual style and how they use it, later it became a good inspiration for the final concept i was cooking with.
+We noticed their current visual style and how they use it, later it became a good inspiration for the final concept i was cooking up.
 
 ## Creative Process
 
