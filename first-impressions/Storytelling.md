@@ -49,7 +49,7 @@ Whether thatâ€™s as a designer, illustrator, youth mentor, or something I havenâ
 
 ![a98777c5-374f-4b69-8b4e-dafcd79c9526](https://github.com/user-attachments/assets/b9b07aaf-7923-43f2-8bc9-7d1d2cad0678)
 
-And most importantly? I want to stay myself.
+And most importantly? I want to stay myself :DD.
 
 
 
