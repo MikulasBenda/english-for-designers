@@ -24,6 +24,9 @@ Fast forward: I graduate, diploma in hand, confused as hell. I didn’t really �
 
 Then life hit again.
 
+![02b1e6c3-6130-4c52-b807-05fe126588a0](https://github.com/user-attachments/assets/b80219fb-1385-4120-839f-c3a1b8969c0a)
+
+
 After the worst heartbreak of my life, I went out with friends. The last thing I remember is drinks. The next thing? A hospital bed. Tubes. Blinding lights. A doctor telling me a vein in my brain burst. A full-on system shutdown — a dramatic plot twist I didn’t ask for.
 
 But here’s the best part:
@@ -43,6 +46,8 @@ What I Want:
 
 Simple: I want to be happy. I want to create things that matter.
 Whether that’s as a designer, illustrator, youth mentor, or something I haven’t discovered yet — I just want to be worthwhile. I want to meet people who make me think. I want to grow. I want to be proud of who I am and what I make.
+
+![a98777c5-374f-4b69-8b4e-dafcd79c9526](https://github.com/user-attachments/assets/b9b07aaf-7923-43f2-8bc9-7d1d2cad0678)
 
 And most importantly? I want to stay me.
 
