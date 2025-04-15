@@ -4,7 +4,7 @@ Hi.. my name si Mikuláš Benda,
 
 but you can call me Miky, I don't really go for formalities, at least when its not necessary, like talking to pope.. i would think you have to be formal around his holiness.. right? 
 
-![Untitled-1-01](https://github.com/user-attachments/assets/b5e15d8e-17fd-4466-8a7d-a9af1fef9dfc)
+![_MG_2234 copy](https://github.com/user-attachments/assets/87b2ee07-cc71-400a-8e17-adeab3fa8766)
 
 I am here to tell you a little bit about myself so you know who you have the pleasure of listening to for the next 15 minutes, so without further ado, here we go.
 
