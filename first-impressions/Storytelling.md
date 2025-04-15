@@ -4,6 +4,8 @@ Hi.. my name si Mikuláš Benda,
 
 but you can call me Miky, I don't really go for formalities, at least when its not necessary, like talking to pope.. i would think you have to be formal around his holiness.. right? 
 
+![Untitled-1-01](https://github.com/user-attachments/assets/b5e15d8e-17fd-4466-8a7d-a9af1fef9dfc)
+
 I am here to tell you a little bit about myself so you know who you have the pleasure of listening to for the next 15 minutes, so without further ado, here we go.
 
 Once upon a time, I was just a little baby boy, exploring, laughing, crying and drawing like every other kid. Nothing out of the ordinary. At least, that’s what everyone assumed. It wasn’t until the last year of elementary school that I realized drawing could actually be… fun. Not just doodles, but something with meaning, something that could grow.
