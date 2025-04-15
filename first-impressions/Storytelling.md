@@ -2,13 +2,21 @@
 
 Hi.. my name si Mikuláš Benda, 
 
-but you can call me Miky, I don't really go for formalities, at least when its not necessary, like talking to pope.. i would think you have to be formal around his holiness.. right? 
+![_MG_2234 copy](https://github.com/user-attachments/assets/0e1a7c8f-d5da-4455-9536-53ac5254c95a)
+this is me :DD
 
-![_MG_2234 copy](https://github.com/user-attachments/assets/87b2ee07-cc71-400a-8e17-adeab3fa8766)
+You can call me Miky, I don't really go for formalities, at least when its not necessary, like talking to pope.. i would think you have to be formal around his holiness.. right? 
 
 I am here to tell you a little bit about myself so you know who you have the pleasure of listening to for the next 15 minutes, so without further ado, here we go.
 
-Once upon a time, I was just a little baby boy, exploring, laughing, crying and drawing like every other kid. Nothing out of the ordinary. At least, that’s what everyone assumed. It wasn’t until the last year of elementary school that I realized drawing could actually be… fun. Not just doodles, but something with meaning, something that could grow.
+Once upon a time, I was just a little bambino, 
+
+![IMG_20250415_0001](https://github.com/user-attachments/assets/b2d06149-8097-4da7-bfa4-a9f31a49f1bf)
+this is me (yes i know.. terrifying, the cameras of 2000 were... lets move on)
+
+
+exploring, laughing, crying and drawing like every other kid. 
+Nothing out of the ordinary. At least, that’s what everyone assumed. It wasn’t until the last year of elementary school that I realized drawing could actually be… fun. Not just doodles, but something with meaning, something that could grow.
 
 When it came time to pick a high school, I was torn between two paths: cooking, my first love (and still a lifelong passion), or graphic design, a mysterious force I didn’t fully understand yet. I chose design — and landed in a school where “graphic design” meant dusty methods and outdated software. Still, I stuck with it. I kept drawing, painting, and leveling up my skills in my own way.
 
