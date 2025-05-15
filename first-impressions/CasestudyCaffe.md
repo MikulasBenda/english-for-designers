@@ -48,8 +48,7 @@ Here are some examples.
 
 I was playing with it a little
 
-![Vector metronom hotovo3-01](https://github.com/user-attachments/assets/dc58b031-b751-42fd-8c3e-a3bde74e956a)
-![Vector metronom hotovo modrá 2-01](https://github.com/user-attachments/assets/0fa56f7d-70a4-4c5e-be89-e7c092232786)
+![Untitsdled-1-01](https://github.com/user-attachments/assets/7dfaf111-f1f0-433c-b19d-ea4e38f3fb5a)
 
 Then I went sicko mode :DD
 
