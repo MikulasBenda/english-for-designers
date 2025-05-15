@@ -34,10 +34,7 @@ This is the outside of the caffe, in my opinion the location is great for a caff
 Some nice photos of the interior.
 I really like the mix of new and old, it fits the place and did i mention that it also has a mini theatre for people to enjoy? Simply refreshing way to do business :)
 
-![080bb150-02d5-4358-ae61-725d2cddf471](https://github.com/user-attachments/assets/35e9c1cc-6137-4ea9-9bbb-72013410113e)
-![1e4c7419-f1fc-4fd6-b9ed-2e7235ecf11d](https://github.com/user-attachments/assets/cbe5a47b-da8e-488c-b887-f9f6e2eabc01)
-![0dd2257a-7265-4d6b-adf6-e25e9d9e7d62](https://github.com/user-attachments/assets/2f52e2e6-e1f4-4d23-b765-ac8c8e61ee16)
-![712b6656-95bd-4e47-8392-fed72cc0dc30](https://github.com/user-attachments/assets/66c07d99-2f4c-4156-b9a1-bbc9c00c1412)
+![Untitsdaled-1-01-01](https://github.com/user-attachments/assets/85bedf64-19a5-4386-b962-33bcd4926697)
 
 We noticed their current visual style and how they use it, later it became a good inspiration for the final concept i was cooking up.
 
@@ -47,8 +44,7 @@ At first, I leaned into the obvious — the iconic Letná metronome, a symbol of
 Here are some examples. 
 
 ![Vector metronom minimal-01](https://github.com/user-attachments/assets/4add3715-2393-4913-a804-017998aa3cf3)
-![Vector metronom minimalist 2-01](https://github.com/user-attachments/assets/3d1bd13c-5452-416b-8cb9-c11b9348e60f)
-![Vector metronom minimalist whute on black2](https://github.com/user-attachments/assets/9994eb56-6473-4b37-8592-d33099815c2c)
+![Untitled-1-01](https://github.com/user-attachments/assets/6573db4d-aba1-4c64-85d5-24c4f0a3fbea)
 
 I was playing with it a little
 
@@ -67,8 +63,8 @@ This contrast captured the vibe of Café Letka’s cozy interiors and modern "hi
 The final design features:
 "Café Letka" hand-placed at the center
 
-![Letka hrníček černá-01](https://github.com/user-attachments/assets/0bf70a2d-69c9-44b8-b97e-5144ffe375fd)
-![Letka hrníček bílá-01](https://github.com/user-attachments/assets/82815202-743a-4a29-975d-6ffe8cb97f56)
+![Untitldsaed-1](https://github.com/user-attachments/assets/bc743a5b-a229-4ef0-a5b5-edadecde6c9c)
+
 ![Letka hrníček minimalist final-01](https://github.com/user-attachments/assets/23f3d947-ae2b-47d6-8785-172f9fc9e4f2)
 ![Letka hrníček mini černábílá-01](https://github.com/user-attachments/assets/08f13bce-bc5f-4045-8c53-53aaba7e1a3c)
 
